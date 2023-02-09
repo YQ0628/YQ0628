@@ -1,6 +1,6 @@
 ### Hi there 👋
 This is 乔予Yu Qiao
-I know it may be hard for you to pronounce my name -- I heard so many English speakers pronounce "Yu" as "You" but it is not! So here are some little tips: you tongue needs to stay tense like it is when you make the "Yi" sound (or the English "ee" sound), but you lips must be rounded in the end!
+I know it may be hard for you to pronounce my name -- I heard so many English speakers pronounce "Yu" as "You" but it is not correct! So here are some little tips: you tongue needs to stay tense like it is when you make the "Yi" sound (or the English "ee" sound), but you lips must be rounded in the end!
 
 I was born and grow up in Guangzhou (historically known as Canton), China. As a Cantonese, I'm always proud of Cantonese cuisines such as dim sum! Let's be friends and I'll show you the best dim sum places in NYC!:wink:
 
