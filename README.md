@@ -6,7 +6,7 @@ I was born and grow up in Guangzhou (historically known as Canton), China. As a 
 
 I'm a first year MPA student at SIPA concentrating on EPD, and specializing in DAQA and GPP. Although I have no idea about my future path currently, I want to navigate more gender-related social problems and advocate for gender equality.  
 
-In my free time, I like gaming! Recently, I'm obsessed with Splattoon 3, a game on Nintendo Switch (though I'm really bad at it). Let's team up and play together if you're also playing it!🥰
+In my free time, I like gaming! Recently, I'm obsessed with Splatoon 3, a game on Nintendo Switch (though I'm really bad at it). Let's team up and play together if you're also playing it!🥰
 
 <!--
 **YQ0628/YQ0628** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
